@@ -1,0 +1,1 @@
+# AI_for_curious_minds_projects
